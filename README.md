@@ -1,4 +1,4 @@
-## All the shapefiles/boundaries can be found in this link: https://drive.google.com/drive/folders/1hnKwvLrbjaOlxkH4v3kLHL15QNwyLHUG?usp=sharing
+## All the shapefiles/boundaries can be found in this link: [EMAIL ME FOR DATA (Too large to be uploaded on Drive)- aatif.dar11@gmail.com ]
 
 # India_Boundaries
 
